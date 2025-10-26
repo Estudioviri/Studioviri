@@ -1,2 +1,0 @@
-# Studioviri
-Pagina de belleza
